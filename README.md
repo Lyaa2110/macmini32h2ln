@@ -1,1 +1,0 @@
-# macmini32h2ln
